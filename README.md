@@ -1,2 +1,3 @@
-# welcome
-Welcome to Krish tech.
+# Welcome
+Welcome to Krish Tech.
+Please subscribe my YouTube channel "Krish Tech".
